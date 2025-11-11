@@ -32,4 +32,6 @@ a fragment of this code now rests beneath the ice of Svalbard, preserved for 1,0
 
 ### 📬 Connect  
 [github.com/vziatkov](https://github.com/vziatkov)  
+zyatkovvv87@gmail.com  
+https://www.linkedin.com/in/vitalii-ziatkov-457556106/
 _Riga · building inner architectures_
